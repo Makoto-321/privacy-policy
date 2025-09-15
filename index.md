@@ -134,3 +134,7 @@ title: プライバシーポリシー
   担当者：上村 諒<br>
   
   メールアドレス：shukanapplication@gmail.com<br>
+
+  -------
+　<br> 2025年9月15日 制定
+
