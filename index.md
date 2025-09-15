@@ -136,5 +136,5 @@ title: プライバシーポリシー
   メールアドレス：shukanapplication@gmail.com<br>
 
   -------
-　<br> 2025年9月15日 制定
+　2025年9月15日 制定
 
